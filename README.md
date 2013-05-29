@@ -1,3 +1,12 @@
+
+                                                                     GNU GENERAL PUBLIC LICENSE
+
+                                                                       Version 3, 29 June 2007
+
+//mosquito por Manu Cogolludo se encuentra bajo una Licencia Creative Commons Atribución-CompartirIgual 3.0 Unported.//
+
+
+
 mosquito
 ========
 
