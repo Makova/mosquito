@@ -1,9 +1,7 @@
+Licencia
+--------
 
-                                                                     GNU GENERAL PUBLIC LICENSE
-
-                                                                       Version 3, 29 June 2007
-
-//mosquito por Manu Cogolludo se encuentra bajo una Licencia Creative Commons Atribución-CompartirIgual 3.0 Unported.//
+mosquito por Manu Cogolludo se encuentra bajo una Licencia Creative Commons Atribución-CompartirIgual 3.0 Unported.//
 
 
 
@@ -15,5 +13,5 @@ El aguijón típico en su especie era también muy desarrollado en comparación 
 
 Era un verano abrasador, pegajoso, molesto, volviendo las noches en pesadillas mojadas por el sufrimiento que, día a día, envolvían la dura realidad del que espera recibir una visita sorpresa e inesperada, perturbando el suave y tímido murmullo que traspasaba los espesos muros de una ciudad prefabricada. De un submundo que paseaba de la mano de una madre que había olvidado a sus hijos en la estación de la vida, de la miseria, de la suerte, de la gloria o de la ruina. 
 
-28 de Julio fue la fecha que marco a hierro a las cinco personas que habitaban en unos metros cuadrados de pena. Olía la sangre a metal viejo y rubinado, la que solo él era capaz de oler, mientras los cinco seguían mascando el sabor de la soledad y el olor a tiempos pasados, mojando las ansías de libertad con gotas que arañaban los poros en la piel. 
+Veintiocho de julio fue la fecha que marcó a hierro a las cinco personas que habitaban en unos metros cuadrados de pena. Olía la sangre a metal viejo y rubinado, la que solo él era capaz de oler, mientras los cinco seguían mascando el sabor de la soledad y el olor a tiempos pasados, mojando las ansías de libertad con gotas que arañaban los poros en la piel. 
 Hablaba Juan sobre el día que llego y lo alto que le parecieron los techos y el feo color verde de sus paredes, pero lo que más le impresiono fue ese olor a humedad mezclada con el dulzón amargo de los rincones, oscuros y sucios. A los miles de ojos que le atravesaban y escrutaban como animales salvajes sedientos de saber, de maldecir y hasta de matar.
