@@ -2,12 +2,12 @@ Licencia
 --------
 
 
-mosquito por Manu Cogolludo se encuentra bajo una Licencia Creative Commons Atribución-CompartirIgual 3.0 Unported.//
+Cuento corto "El mosquito" por Manu Cogolludo se encuentra bajo una Licencia Creative Commons Atribución-CompartirIgual 3.0 Unported.//
 
 
 
 
-mosquito
+El mosquito
 ========
 
 Era de una cabeza más grande de lo habitual, al igual que el resto del cuerpo, solamente su presencia hacía estremecer hasta el más fuerte o de sangre menos dulce. 
@@ -17,3 +17,5 @@ Era un verano abrasador, pegajoso, molesto, volviendo las noches en pesadillas m
 
 Veintiocho de julio fue la fecha que marcó a hierro a las cinco personas que habitaban en unos metros cuadrados de pena. Olía la sangre a metal viejo y rubinado, la que solo él era capaz de oler, mientras los cinco seguían mascando el sabor de la soledad y el olor a tiempos pasados, mojando las ansías de libertad con gotas que arañaban los poros en la piel. 
 Hablaba Juan sobre el día que llego y lo alto que le parecieron los techos y el feo color verde de sus paredes, pero lo que más le impresiono fue ese olor a humedad mezclada con el dulzón amargo de los rincones, oscuros y sucios. A los miles de ojos que le atravesaban y escrutaban como animales salvajes sedientos de saber, de maldecir y hasta de matar.
+
+Miguel era un tipo que daba la impresión de llevar más tiempo que nadie entre los altos techos y el verde ruin de sus paredes. Daba una seguridad que rozaba la prepotencia, aun en sus momentos más bajos siempre tenía palabras de aliento que mitigaban los días mugrientos entre colchones y chinches. Decía llevar calendarios de todos los colores, imágenes y logotipos, que ya quisiera cualquier coleccionista de calendarios. Fotos de revistas y recortes de periódicos con un tono amarillento, que rememoraban tiempos pasados y de los cuales se enorgullecía en enseñar y recordar los traspiés que le habían llevado a tener que cuidarlos para ofrecerlos en momentos como este.
