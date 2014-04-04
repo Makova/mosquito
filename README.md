@@ -1,4 +1,3 @@
-Cuento corto el mosquito por Manu Cogolludo
-===========================================
-
+Cuento corto "el mosquito" 
+=========================
 
