@@ -1,5 +1,5 @@
-Cuento corto Mosquito 
-=====================
+Cuento corto el Mosquito 
+========================
 
 Por *Manu Cogolludo*
 
