@@ -76,6 +76,6 @@ de humanidad.
 Pasó a mejor vida, tanto como se entienda eso de mejor vida, claro. Teniendo en cuenta que la vida en
 aquellos duros años consistía en sobrevivir a consta de una violencia agravada por la agresividad desmedida
 de quién se sabe vulnerable. Vulnerable de ataques imprevistos y gratuitos, fieles a la ley de la calle
-en la que
+en la que me dijo mi hermano Santi que hiciese deporte...
 
 
