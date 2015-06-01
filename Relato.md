@@ -70,12 +70,12 @@ las vísceras por toda la pared, dejando unas manchas color marrón sobre el fon
  
 
 
-Habían pasado años sin aparecer un gachupín imberbe desde que Manuel paso a mejor vida. 
+Habían pasado muchos años sin aparecer un niñato imberbe desde que Manuel paso a mejor vida. 
 Manuel era todo un personaje, del que pese a su juventud, todos aprendimos una tremenda lección 
 de humanidad.
+
 Pasó a mejor vida, tanto como se entienda eso de mejor vida, claro. Teniendo en cuenta que la vida en
-aquellos duros años consistía en sobrevivir a consta de una violencia agravada por la agresividad desmedida
-de quién se sabe vulnerable. Vulnerable de ataques imprevistos y gratuitos, fieles a la ley de la calle
-en la.
+aquellos duros años consistía en sobrevivir a consta de una violencia agravada por la agresividad desmedida de quién se sabe vulnerable. Vulnerable de ataques imprevistos y gratuitos, fieles a la ley de la calle en la que se crió.
+
 
 
