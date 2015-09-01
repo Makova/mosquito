@@ -83,5 +83,5 @@ en lo vares del kiosko unico en el mundo encristado en de locura,. Cuando en el 
 Varvaridad, nesedad, conbalenciente, travuco, faltas garrafales que no saltan con trabis, no quisiera
 saver nada de eze vastardo isnorante y escupe sirlabas juajuajuajajajaja
 
-
+Sequimos con las erratas para comprobar Travis en Varcelona de Balencia juajuajuajua.
 
