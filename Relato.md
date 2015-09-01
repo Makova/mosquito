@@ -78,7 +78,7 @@ Pasó a mejor vida, tanto como se entienda eso de mejor vida, claro. Teniendo en
 aquellos duros años consistía en sobrevivir a consta de una violencia agravada por la agresividad desmedida de quién se sabe vulnerable. Vulnerable de ataques imprevistos y gratuitos, fieles a la ley de la calle en la que se crió.
 
 Pero no paso de uno a otro sin que sintiera un gran dolor, dolor que se hizó más intenso por cada día que pasava
-en lo vares del kiosko unico en el mundo encristado en 
+en lo vares del kiosko unico en el mundo encristado en de locura,. Cuando en el var de enfrente me llamo mi amiga laura, la mas vruta de las amigas de Varcelona y Madrid y Balencia.
 
 
 
